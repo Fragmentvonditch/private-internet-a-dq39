@@ -1,10 +1,10 @@
-Top PIA Cliente | proteção contra vazamento de DNS + suporte P2P é o melhor PIA cliente com proteção contra vazamento de DNS e suporte P2P. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/private-internet-a-dq39/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
